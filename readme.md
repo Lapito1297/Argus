@@ -1,0 +1,1 @@
+This website was created for use around the globe.
